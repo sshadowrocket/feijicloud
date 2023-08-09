@@ -1,6 +1,6 @@
 # 飞机云官网地址
 
-[飞机云](https://feijiyun.net/tag/feijicloud/)，是老牌速鹰666桔子云旗下新上线的IPLC科学上网加速机场，线路节点和[老站](https://sars.win/out/jikess)完全不一样，低价稳定，新上线，不拥挤，全新体验。
+[飞机云](https://feijiyun.net/tag/feijicloud/)，是老牌速鹰666桔子云旗下新上线的IPLC科学上网加速机场，线路节点和[老站](https://sars.win/out/jikess)完全不一样，低价稳定，[新上线](https://sars.win/119)，不拥挤，全新体验。
 
 飞机云官网
 -----
