@@ -2,6 +2,8 @@
 
 [飞机云](https://feijiyun.net/tag/feijicloud/)，是老牌速鹰666桔子云旗下新上线的IPLC科学上网加速机场，线路节点和[老站](https://sars.win/out/jikess)完全不一样，低价稳定，[新上线](https://sars.win/119)，不拥挤，全新体验。
 
+[点击查看飞机云最新优惠码](feijicloud-coupon.md)
+
 飞机云官网
 -----
 
@@ -31,11 +33,11 @@
 
 [点击进入：飞机云官网传送门](https://sars.win/out/feiji)
 
-[点击查看飞机云最新优惠码](feijicloud-coupon.md)
-
 飞机云晚高峰测速 - 中国移动
 ---------------
 
 [![飞机云测速](https://sars.win/wp-content/uploads/2023/08/119_uxtt_20230808_233210.png)](https://sars.win/out/feiji)
 
 [点击进入：飞机云官网传送门](https://sars.win/out/feiji)
+
+[点击查看飞机云最新优惠码](feijicloud-coupon.md)
