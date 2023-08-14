@@ -31,6 +31,8 @@
 
 [点击进入：飞机云官网传送门](https://sars.win/out/feiji)
 
+[点击查看飞机云最新优惠码](feijicloud-coupon.md)
+
 飞机云晚高峰测速 - 中国移动
 ---------------
 
