@@ -2,7 +2,16 @@
 
 [飞机云](https://feijiyun.net/tag/feijicloud/)，是老牌速鹰666桔子云旗下新上线的IPLC科学上网加速机场，线路节点和[老站](https://sars.win/out/jikess)完全不一样，低价稳定，[新上线](https://sars.win/119)，不拥挤，全新体验。
 
-[点击查看飞机云最新优惠码](feijicloud-coupon.md)
+飞机云最新官网地址：
+
+*   [https://feijiyun55.com](https://feijiyun55.com/auth/register?code=Mw7q)
+*   [https://feijiyun66.com](https://feijiyun.net/out/feiji)
+*   [https://feijiyun77.com](https://feijiyun77.com/auth/register?code=Mw7q)
+*   [https://feijiyun88.com](https://feijiyun88.com/auth/register?code=Mw7q)
+*   [https://feijiyun99.com](https://feijiyun99.com/auth/register?code=Mw7q)
+*   [https://feijiyun100.com](https://feijiyun100.com/auth/register?code=Mw7q)
+*   [https://feijiyun520.com](https://feijiyun520.com/auth/register?code=Mw7q)
+*   [https://feijiyun911.com](https://feijiyun911.com/auth/register?code=Mw7q)
 
 飞机云官网
 -----
@@ -29,7 +38,7 @@
 飞机云平价机场套餐介绍
 -----------
 
-飞机云平价机场目前有入门版、标准版、高级版、旗舰版4种套餐可选择，基本上满足各种需求，丰俭由人。 [![](https://sars.win/wp-content/uploads/2023/08/119_uxtt_20230808_233121.png)](https://sars.win/wp-content/uploads/2023/08/119_uxtt_20230808_233121.png)
+飞机云平价机场目前有入门版、标准版、高级版、旗舰版4种套餐可选择，基本上满足各种需求，丰俭由人。 [![](https://sars.win/wp-content/uploads/2023/08/119_uxtt_20230808_233121.png)](https://feijiyun.net/out/feiji)
 
 [点击进入：飞机云官网传送门](https://sars.win/out/feiji)
 
@@ -40,4 +49,6 @@
 
 [点击进入：飞机云官网传送门](https://sars.win/out/feiji)
 
-[点击查看飞机云最新优惠码](feijicloud-coupon.md)
+飞机云最新优惠码，飞机云春节优惠促销：
+
+飞机云年付79折优惠：[a2024](https://sars.win/out/feiji)
