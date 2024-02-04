@@ -2,17 +2,6 @@
 
 [飞机云](https://feijiyun.net/tag/feijicloud/)，是老牌速鹰666桔子云旗下新上线的IPLC科学上网加速机场，线路节点和[老站](https://sars.win/out/jikess)完全不一样，低价稳定，[新上线](https://sars.win/119)，不拥挤，全新体验。
 
-飞机云最新官网地址：
-
-*   [https://feijiyun55.com](https://feijiyun55.com/auth/register?code=Mw7q)
-*   [https://feijiyun66.com](https://feijiyun.net/out/feiji)
-*   [https://feijiyun77.com](https://feijiyun77.com/auth/register?code=Mw7q)
-*   [https://feijiyun88.com](https://feijiyun88.com/auth/register?code=Mw7q)
-*   [https://feijiyun99.com](https://feijiyun99.com/auth/register?code=Mw7q)
-*   [https://feijiyun100.com](https://feijiyun100.com/auth/register?code=Mw7q)
-*   [https://feijiyun520.com](https://feijiyun520.com/auth/register?code=Mw7q)
-*   [https://feijiyun911.com](https://feijiyun911.com/auth/register?code=Mw7q)
-
 飞机云官网
 -----
 
@@ -22,18 +11,14 @@
 
 飞机云官网打不开了，[飞机云跑路了吗？](https://feijiyun.net/tag/%e9%a3%9e%e6%9c%ba%e4%ba%91%e8%b7%91%e8%b7%af%e4%ba%86%e5%90%97%ef%bc%9f/)并没有，只是官网被屏蔽了，以下是飞机云官网备用登录入口：
 
-*   [https://feijicloud.org](https://feijicloud.org/auth/register?code=Mw7q)
-*   [https://feiji66.com](https://feiji66.com/auth/register?code=Mw7q)
-*   [https://feiji66.net](https://feiji66.net/auth/register?code=Mw7q)
-*   [https://feiji69.com](https://feiji69.com/auth/register?code=Mw7q)
-*   [https://feiji69.net](https://feiji69.net/auth/register?code=Mw7q)
-*   [https://feiji80.com](https://feiji80.com/auth/register?code=Mw7q)
-*   [https://feiji80.net](https://feiji80.net/auth/register?code=Mw7q)
-*   [https://feiji86.com](https://feiji86.com/auth/register?code=Mw7q)
-*   [https://feiji86.net](https://feiji86.net/auth/register?code=Mw7q)
-*   [https://feiji99.com](https://feiji99.com/auth/register?code=Mw7q)
-*   [https://feiji99.net](https://feiji99.net/auth/register?code=Mw7q)
-*   [https://feijicloud.net](https://feijicloud.net/auth/register?code=Mw7q)
+*   [https://feijiyun55.com](https://feijiyun55.com/auth/register?code=Mw7q)
+*   [https://feijiyun66.com](https://feijiyun.net/out/feiji)
+*   [https://feijiyun77.com](https://feijiyun77.com/auth/register?code=Mw7q)
+*   [https://feijiyun88.com](https://feijiyun88.com/auth/register?code=Mw7q)
+*   [https://feijiyun99.com](https://feijiyun99.com/auth/register?code=Mw7q)
+*   [https://feijiyun100.com](https://feijiyun100.com/auth/register?code=Mw7q)
+*   [https://feijiyun520.com](https://feijiyun520.com/auth/register?code=Mw7q)
+*   [https://feijiyun911.com](https://feijiyun911.com/auth/register?code=Mw7q)
 
 飞机云平价机场套餐介绍
 -----------
