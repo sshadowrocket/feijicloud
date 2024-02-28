@@ -11,14 +11,9 @@
 
 飞机云官网打不开了，[飞机云跑路了吗？](https://feijiyun.net/tag/%e9%a3%9e%e6%9c%ba%e4%ba%91%e8%b7%91%e8%b7%af%e4%ba%86%e5%90%97%ef%bc%9f/)并没有，只是官网被屏蔽了，以下是飞机云官网备用登录入口：
 
-*   [https://feijiyun55.com](https://feijiyun55.com/auth/register?code=Mw7q)
+*   [https://feijiyun38.xyz](https://feijiyun38.xyz/auth/register?code=Mw7q)
 *   [https://feijiyun66.com](https://feijiyun.net/out/feiji)
-*   [https://feijiyun77.com](https://feijiyun77.com/auth/register?code=Mw7q)
-*   [https://feijiyun88.com](https://feijiyun88.com/auth/register?code=Mw7q)
-*   [https://feijiyun99.com](https://feijiyun99.com/auth/register?code=Mw7q)
-*   [https://feijiyun100.com](https://feijiyun100.com/auth/register?code=Mw7q)
-*   [https://feijiyun520.com](https://feijiyun520.com/auth/register?code=Mw7q)
-*   [https://feijiyun911.com](https://feijiyun911.com/auth/register?code=Mw7q)
+
 
 飞机云平价机场套餐介绍
 -----------
