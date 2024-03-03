@@ -12,7 +12,7 @@
 飞机云官网打不开了，[飞机云跑路了吗？](https://feijiyun.net/tag/%e9%a3%9e%e6%9c%ba%e4%ba%91%e8%b7%91%e8%b7%af%e4%ba%86%e5%90%97%ef%bc%9f/)并没有，只是官网被屏蔽了，以下是飞机云官网备用登录入口：
 
 *   [https://feijiyun38.xyz](https://feijiyun38.xyz/auth/register?code=Mw7q)
-*   [https://feijiyun66.com](https://feijiyun.net/out/feiji)
+*   [https://feijiyun38.xyz](https://feijiyun38.com/auth/register?code=Mw7q)
 
 
 飞机云平价机场套餐介绍
@@ -31,4 +31,4 @@
 
 飞机云最新优惠码，飞机云春节优惠促销：
 
-飞机云年付79折优惠：[a2024](https://sars.win/out/feiji)
+飞机云年付82优惠：[T82](https://sars.win/out/feiji)
